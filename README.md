@@ -1,6 +1,6 @@
-#Collaboration With#
-##Giana May Cherish D. Juanzo##
-##Mark Vincent E. Santos##
+# Collaboration With #
+## Giana May Cherish D. Juanzo ##
+## Mark Vincent E. Santos ##
 
 # ACTIVITIES #
 

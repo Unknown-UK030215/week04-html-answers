@@ -1,3 +1,7 @@
+#Collaboration With#
+##Giana May Cherish D. Juanzo##
+##Mark Vincent E. Santos##
+
 # ACTIVITIES #
 
 the *Favorite.html* is Educaion Webpage for Moana (the movie we chose).
